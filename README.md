@@ -1,1 +1,1 @@
-# Thu-t-To-n-Gi-i-Thu-t
+# Thuat-Toan-Giai-Thuat
